@@ -1,6 +1,7 @@
 ### Hi there 👋
 
 💼 I'm currently working as Growth Operations Manager @ [Local Logic](https://www.locallogic.co)
+
 📷 I'm a [photographer](https://jpvalery.photo) with 2 published books, 100,000,000 views on [Unsplash](https://unsplash.com/jpvalery), and founder of the [MontréalPhotoClub](https://montrealphoto.club). 
 
 You can browse my repos here to get a glimpse of the stuff I tinker with.
