@@ -1,6 +1,6 @@
 ### Hi there 👋
 
-💼 Customer Success Team Lead @ [Customer.io](https://customer.io)
+💼 Success Team Manager @ [Customer.io](https://customer.io)
 
 📷 I'm a [photographer](https://jpvalery.photo) with 2 published books, over 200,000,000 views on [Unsplash](https://unsplash.com/jpvalery), and founder of the [MontréalPhotoClub](https://montrealphoto.club). 
 
